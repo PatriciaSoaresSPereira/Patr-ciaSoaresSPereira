@@ -20,4 +20,8 @@ ________________________________________________________________________________
 
 📚 Estudando ciência de dados, Power Bi, Python, machine learning...
 
+👩‍💼 Hoje atuo como Analista de Sistemas 
+
+👩‍🦱 Pronomes: Ela
+
 
