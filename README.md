@@ -18,8 +18,6 @@ ________________________________________________________________________________
 
 🔭 Eu estudei ciências de dados e analise, pós -graduação na Faculdade Puc-Rio.
 
-📚 Estudando ciência de dados, Power Bi, Python, machine learning...
-
 👩‍💼 Hoje atuo como Analista de Sistemas 
 
 👩‍🦱 Pronomes: Ela
