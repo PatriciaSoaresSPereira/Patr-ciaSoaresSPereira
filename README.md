@@ -24,4 +24,6 @@ ________________________________________________________________________________
 
 👩‍🦱 Pronomes: Ela
 
+📫 Como entrar em contato comigo: patsoares28@gmail.com 
+
 
