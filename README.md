@@ -1,8 +1,7 @@
 # PatríciaSoaresSPereira
 
 
-
-![image](https://github.com/PatriciaSoaresSPereira/Patr-ciaSoaresSPereira/assets/136263539/9070ebf1-17d4-42d9-addf-979f643715e1)
+https://www.eia.ai/content-assets/public/0e6wj7hq26is3fc1cae81cbebgl1
 
 
 
