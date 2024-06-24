@@ -7,3 +7,9 @@
 
 
 
+Atualmente terminei uma pós-graduação em Ciências de Dados e Analise, estou em transição de carreira, onde aprendi programar em Pyhton, Sql 
+Machine learning e Deep learning. 
+
+
+
+
